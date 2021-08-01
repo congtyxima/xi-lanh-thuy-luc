@@ -1,4 +1,4 @@
-# xi-lanh-thuy-luc
+# https://thuylucsaigon.com/tin-tuc/xy-lanh-thuy-luc/
 Chế Tạo Xi Lanh thuy Lực Công Nghiệp. Công Ty Thủy Lực Sài Gòn Đơn Vị Sản Xuất Xi lanh Thủy lực Tại Việt Nam
 <h2><b>XY LANH THUỶ LỰC ( <a href="https://thuylucsaigon.com/san-pham/sua-ty-ben/">Ty Ben Thủy Lực</a> , Xi lanh thủy lực )</b></h2>
 <p>Hầu hết ai trong số chúng ta đều đã quá quen thuộc và dường như đã biết rất rõ về xy lanh thủy lực (trong miền Nam các bạn gọi là <a href="https://thuylucsaigon.com/san-pham/sua-ty-ben/">BEN THỦY LỰC</a> , Xi lanh thủy lực).</p>
